@@ -1,1 +1,2 @@
 - [How This Hated YouTuber Faked Her Entire Career](https://youtu.be/ym8RRJnI5Lo)
+- [The Satisfying Downfall Of Nadia (Warzone Cheater)](https://youtu.be/q9PhL38FXcI)
